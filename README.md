@@ -1,1 +1,1 @@
-Web public link: https://thankful-desert-034a71710.5.azurestaticapps.net/
+Web public link: https://nice-water-07ee07210.6.azurestaticapps.net
